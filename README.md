@@ -115,7 +115,7 @@ the application.
 For questions, concerns, or feedback regarding this Privacy Policy or 
 the Unify app, you may reach us at:
 
-**Email:** [YOUR EMAIL HERE]
+**Email:** barotovotabek2008@gmail.com
 
 ---
 
